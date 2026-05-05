@@ -1,4 +1,4 @@
-# !["Arts and Crafts my Favorite!"](https://files.catbox.moe/ofb3ai.webp)
+!["Arts and Crafts my Favorite!"](https://files.catbox.moe/ofb3ai.webp)
 
 fuck i dont know how to decorate this. 
 
